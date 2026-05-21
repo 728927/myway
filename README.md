@@ -1,3 +1,3 @@
 # myway
-Know yourself
+Know yourself   
 Изучай Ислам и читай себя
